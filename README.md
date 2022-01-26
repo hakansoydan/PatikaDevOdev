@@ -1,0 +1,3 @@
+# PatikaDev Ödevi 
+
+Hakan Soydan 
